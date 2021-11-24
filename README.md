@@ -1,0 +1,3 @@
+- 👋 Merhaba ben @AtParadise234
+- 👀 YouTube kanalım var
+- 🌱 Geliştiriciyim
